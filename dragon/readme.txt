@@ -1,3 +1,5 @@
+NOTE: MARK MURILLO: THIS WAS TAKEN FROM FREE3D WEBSITE. I DID NOT CREATE THIS!
+
 BGE Dragon 2.0
 
 This is my black dragon design.
